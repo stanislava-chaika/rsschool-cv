@@ -2,6 +2,6 @@
 
 # it's me
 
-# i was wandering
+# i was wondering
 
 # if after all these years
